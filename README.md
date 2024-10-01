@@ -6,8 +6,6 @@
 
 - 🔭 I’m currently working at ELGIN S/A
 
-- ⚡ Fun fact **Oneye 😜**
-
 - 👨‍💻 More at https://www.linkedin.com/in/raphael-torrenti-932638186/
 
 
